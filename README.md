@@ -219,4 +219,4 @@ Barricade is offered as a **full free version**, featuring all features and upda
 Ready to embark on an exciting board game adventure? **Download Barricade today and let the fun begin!**
 
 ---
-**Last updated:** 2026-11-11 22:24:02 UTC
+**Last updated:** 2026-11-12 03:31:33 UTC
